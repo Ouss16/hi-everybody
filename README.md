@@ -1,2 +1,3 @@
 # hi-everybody
-first store 
+im new
+id like somme help 
